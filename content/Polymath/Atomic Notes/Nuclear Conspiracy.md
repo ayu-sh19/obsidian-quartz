@@ -5,9 +5,9 @@ Tags : [[Conspiracy Theories]]
 # Notes
 
 
-What was a 🇺🇸US nuclear emergency aircraft doing over 🇵🇰Pakistan?
+What was a US nuclear emergency aircraft doing over 🇵🇰Pakistan?
 
-A rare aircraft, built for nuclear disaster response, was spotted in 🇵🇰Pakistani airspace shortly after 🇮🇳 Indian airstrikes on key military facilities. While both nations stay tight-lipped, the presence of this aircraft is raising serious questions.
+A rare aircraft, built for nuclear disaster response, was spotted in 🇵🇰Pakistani airspace shortly after  Indian airstrikes on key military facilities. While both nations stay tight-lipped, the presence of this aircraft is raising serious questions.
 
 Here's what we found:[![Image](https://pbs.twimg.com/media/GqxFVNsW0AAtQyj.jpg)](https://pbs.twimg.com/media/GqxFVNsW0AAtQyj.jpg)
 
