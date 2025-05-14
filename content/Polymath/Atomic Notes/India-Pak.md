@@ -2,3 +2,4 @@
 [[Operation Sindoor]]
 [[Rogue State]]
 [[Pahalgam Attack]]
+[[Defence Capabilities]]
