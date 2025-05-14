@@ -1,6 +1,6 @@
 2025-05-14
 
-Tags : [[Defence Capabilities]] [[Operation Sindoor]]
+Tags : [[Defence Capabilities]] 
 
 # Notes 
 

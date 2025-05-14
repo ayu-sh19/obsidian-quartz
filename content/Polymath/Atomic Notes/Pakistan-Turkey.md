@@ -2,9 +2,8 @@
 
 Tags : [[Rogue State]]
 
-# Notes 
+# Notes
 
 ![[Pasted image 20250514151220.png]]
 
 # References
-
