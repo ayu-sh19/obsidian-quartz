@@ -10,3 +10,4 @@ Tags : [[Operation Sindoor]]
 # References
 
 https://www.ndtv.com/india-news/india-pakistan-operation-sindoor-ceasefire-after-4-days-inside-story-of-how-india-pakistan-reached-agreement-8384442
+
